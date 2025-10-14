@@ -20,7 +20,7 @@ Eggs are used in many dishes across the globe due to many animals having the abi
 
 2. Japanese - Many traditional dishes in Japanese cuisine use eggs as a main ingredient with dishes like [_Takoyaki_](https://en.wikipedia.org/wiki/Takoyaki) and [_Katsudon_](https://en.wikipedia.org/wiki/Katsudon).
 
-3. Chinese - A couple of Chinese dishes use the whole egg as the main component of the dish and soak or preserve them using various methods like they do with dishes like[ _Century Eggs_](https://en.wikipedia.org/wiki/Century_egg) and the [_Salted Duck Egg](https://en.wikipedia.org/wiki/Salted_duck_egg)
+3. Chinese - A couple of Chinese dishes use the whole egg as the main component of the dish and soak or preserve them using various methods like they do with dishes like[ _Century Eggs_](https://en.wikipedia.org/wiki/Century_egg) and the [_Salted Duck Egg_](https://en.wikipedia.org/wiki/Salted_duck_egg)
 
 ## Symbolism
 Eggs carry a symbolic meaning by being metaphors of the circle of life and purity due to it being shielded by its shell from the outside world. Some religions, like Christianity, depict the egg to symbolize the resurrection of Jesus Christ during Easter and the Jewish Passover holiday uses eggs to represent sacrifice and loss[4].
